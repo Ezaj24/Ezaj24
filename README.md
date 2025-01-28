@@ -15,8 +15,8 @@ I’m interested in contributing to projects that have a big impact, especially 
 
 📫 How to reach me
 
-LinkedIn: Ezaj24
-Email: youremail@example.com
+LinkedIn: linkedin.com/in/ezaj-shaikh-6b0085314
+Email: workazaj@gmail.com
 😄 Pronouns: He/Him
 
 ⚡ Fun fact:
