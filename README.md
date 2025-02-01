@@ -13,7 +13,7 @@ These are my core skills, and I'm comfortable working with them to build efficie
 💞️ I’m looking to collaborate on
 I’m interested in contributing to projects that have a big impact, especially those with larger organizations or teams. I’m excited to bring my skills to projects that solve real-world problems.
 
-📫 How to reach me
+📫 How to reach me 
 
 LinkedIn: linkedin.com/in/ezaj-shaikh-6b0085314
 Email: workazaj@gmail.com
