@@ -20,7 +20,7 @@ Email: workazaj@gmail.com
 😄 Pronouns: He/Him
 
 ⚡ Fun fact:
-I’m a huge fan of video games—Uncharted and God of War are among my favorites! When I’m not coding, I enjoy diving into these epic adventures to relax and unwind.
+I’m a huge fan of video games—Uncharted and God of War are among my favorites! When I’m not coding, I enjoy diving into these epic adventures to relax and unwind..
 <!---
 Ezaj24/Ezaj24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
